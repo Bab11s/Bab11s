@@ -1,14 +1,10 @@
 ### Hi there 👋
 
 
-**Bab11s/Bab11s** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Bab11s/Bab11s** ✨ 
+me chamo Barbara
+eu gosto de ver filmes e serie de terror e romanse 
+prefiro verao pois consigo ser mais produtiva 
+sou mais de humanas porem nao ou tao ruim em exatas 
+goto muito de animais 
 
-Here are some ideas to get you started:
-
-- 🌱 I’m currently learning: many things
-- 🤔 I’m looking for help with:nothing
-- 💬 Ask me about ...
-- 📫 How to reach me: WhatsApp and Instagram 
-- 😄 Pronouns:she/her
-- ⚡ Fun fact: ...
--->
