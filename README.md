@@ -8,4 +8,4 @@ prefiro verao pois consigo ser mais produtiva
 sou mais de humanas porem nao ou tao ruim em exatas 
 goto muito de animais 
 
-![Uploading funny-memes-funny.gif…]()
+![](https://media.tenor.com/sOflyJ-8XMcAAAAC/funny-memes-funny.gif)
